@@ -1,1 +1,2 @@
-![Dino_non-birthday_version](https://user-images.githubusercontent.com/46029522/125870833-dfc164c3-1158-4785-bfbc-a60ad5233288.gif)
+![687474703a2f2f692e696d6775722e636f6d2f50566e473256672e676966](https://user-images.githubusercontent.com/46029522/125871131-5f0670ef-c380-4e0b-82a5-8c437bb5a331.gif)
+
